@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SKnaxxx
+- 👋 Hi, I’m @SKnaxxx 
 - 👀 I’m interested in money
 - 🌱 I’m currently learning how to make lots of money
 - 💞️ I’m looking to collaborate on moneymaking
